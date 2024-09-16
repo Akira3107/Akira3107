@@ -1,5 +1,6 @@
 *Boas vindas ao meu perfil!!*
-Meu nome é Geovanna Eduarda! Porém, gosto de usar o nickname de Akira! 
+
+- Meu nome é Geovanna Eduarda! Porém, gosto de usar o nickname de Akira! 
 
 - Sou uma estudante do Alura
 - Estou desenvolvendo na linguagem JavaScript
