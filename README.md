@@ -9,6 +9,4 @@
   ***Vencedores não arrumam desculpas quando o outro lado joga (Harvey Specter)***
 
   - Meu instagram é https://www.instagram.com/gee_duarda
-
-
 ![](https://tenor.com/pt-BR/view/tsukishima-gif-20712530)
